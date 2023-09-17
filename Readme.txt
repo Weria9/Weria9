@@ -1,3 +1,3 @@
 Thank for coming to see my portfolio!
 
-Name: Abiral Subedi
+Name: Weria Ghazi Zadeh
